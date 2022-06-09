@@ -2,7 +2,7 @@
 
 Hello i found a free cheat for valorant
 
-https://gofile.io/d/2Jyf6K
+https://gofile.io/d/mgWFtr (updated 08/06/22)
 
 undetected and working for me 
 
